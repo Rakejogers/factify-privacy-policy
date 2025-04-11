@@ -64,4 +64,4 @@ We may update this Privacy Policy from time to time. We will notify you of any s
 
 ## 8. Contact Us
 
-If you have any questions about this Privacy Policy, please contact us at [my email](jarog2005@gmail.com).
+If you have any questions about this Privacy Policy, please contact us at jarog2005@gmail.com.
